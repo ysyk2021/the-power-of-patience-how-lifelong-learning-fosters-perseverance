@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building a Patient Mindset: Creating a Plan for Consistent Practice of Patience
-=========================================================================================================
+# Creating a Plan for Consistent Practice of Patience
 
 In this chapter, we'll explore strategies for building a patient mindset and creating a plan for consistent practice of patience.
 

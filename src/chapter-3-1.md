@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building a Patient Mindset: Building Self-Awareness and Understanding of Personal Patience Style
-==========================================================================================================================
+# Building Self-Awareness and Understanding of Personal Patience Style
 
 In this chapter, we'll explore strategies for building self-awareness and understanding your personal patience style to develop a patient mindset.
 

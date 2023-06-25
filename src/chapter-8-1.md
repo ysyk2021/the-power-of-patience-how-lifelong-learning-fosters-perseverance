@@ -1,5 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points
-==========================================
+# Recap of Key Points
 
 In this book, we've explored the power of patience and how it can foster perseverance and success. We've discussed the importance of cultivating a patient mindset, building the habits necessary for success, measuring progress towards our goals, and applying the power of patience in different settings and platforms. Now, let's recap the key points of this book.
 

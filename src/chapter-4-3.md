@@ -1,5 +1,4 @@
-Chapter 4: Tools and Techniques for the Power of Patience: Leveraging Support Networks and Community for Encouragement and Motivation
-=====================================================================================================================================
+# Leveraging Support Networks and Community for Encouragement and Motivation
 
 In this chapter, we'll explore how to leverage support networks and community for encouragement and motivation in developing patience.
 

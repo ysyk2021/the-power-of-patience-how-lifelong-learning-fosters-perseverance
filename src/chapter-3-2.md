@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building a Patient Mindset: Developing a System for Assessing Patience Needs and Goals
-================================================================================================================
+# Developing a System for Assessing Patience Needs and Goals
 
 In this chapter, we'll explore strategies for developing a system to assess your patience needs and goals to cultivate a patient mindset.
 
