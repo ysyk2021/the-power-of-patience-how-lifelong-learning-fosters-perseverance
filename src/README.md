@@ -6,5 +6,4 @@ This book provides practical tips and strategies for cultivating patience, inclu
 
 Whether you are an entrepreneur, student, or simply looking to enhance your personal development, The Power of Patience is a must-read. Discover the power of patience and lifelong learning in developing the essential traits of perseverance and resilience, and unleash your full potential.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
