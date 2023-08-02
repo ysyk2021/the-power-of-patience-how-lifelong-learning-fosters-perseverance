@@ -1,7 +1,7 @@
 The Power of Patience: How Lifelong Learning Fosters Perseverance
 =================================================================
 
-Chapter 3: Building Self-Awareness and Understanding of Personal Patience Style
+Building Self-Awareness and Understanding of Personal Patience Style
 -------------------------------------------------------------------------------
 
 In this chapter, we delve into the importance of self-awareness in developing patience and explore how understanding our personal patience style can guide our growth and perseverance. By engaging in self-reflection and self-discovery, we lay the foundation for cultivating patience and fostering resilience throughout our lives.

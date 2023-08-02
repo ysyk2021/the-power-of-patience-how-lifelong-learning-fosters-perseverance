@@ -1,7 +1,7 @@
 The Power of Patience: How Lifelong Learning Fosters Perseverance
 =================================================================
 
-Chapter 5: Developing a System for Assessing Patience Needs and Goals
+Developing a System for Assessing Patience Needs and Goals
 ---------------------------------------------------------------------
 
 In this chapter, we explore the importance of self-reflection and evaluation in understanding our patience needs and setting meaningful goals. By developing a systematic approach to assess our patience levels and establish clear objectives, we can embark on a purposeful journey towards cultivating patience and fostering perseverance.

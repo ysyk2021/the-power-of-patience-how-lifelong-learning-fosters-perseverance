@@ -1,4 +1,4 @@
-Chapter: Applying the Power of Patience for Non-Profit Organizations and Social Enterprises
+Applying the Power of Patience for Non-Profit Organizations and Social Enterprises
 ===========================================================================================
 
 In this chapter, we will explore the application of the power of patience for non-profit organizations and social enterprises. Patience is a valuable virtue that can greatly impact the success and sustainability of these organizations. We will delve into how cultivating patience can foster perseverance, resilience, and long-term impact in the non-profit sector.

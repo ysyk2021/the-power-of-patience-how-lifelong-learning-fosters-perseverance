@@ -1,4 +1,4 @@
-Chapter: Leveraging Support Networks and Community for Encouragement and Motivation
+Leveraging Support Networks and Community for Encouragement and Motivation
 ===================================================================================
 
 In this chapter, we will explore the significance of leveraging support networks and community for encouragement and motivation in the context of fostering perseverance through lifelong learning. Recognizing the power of connections and communal support, we will delve into how individuals can benefit from engaging and participating in various networks and communities to enhance their patience, resilience, and overall perseverance.

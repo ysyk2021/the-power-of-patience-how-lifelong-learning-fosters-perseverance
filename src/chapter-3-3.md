@@ -1,7 +1,7 @@
 The Power of Patience: How Lifelong Learning Fosters Perseverance
 =================================================================
 
-Chapter 7: Creating a Plan for Consistent Practice of Patience
+Creating a Plan for Consistent Practice of Patience
 --------------------------------------------------------------
 
 In this chapter, we delve into the practical strategies and techniques for cultivating and practicing patience consistently in our daily lives. By creating a plan and implementing these practices, we can strengthen our ability to navigate challenges, foster resilience, and embrace the power of patience.

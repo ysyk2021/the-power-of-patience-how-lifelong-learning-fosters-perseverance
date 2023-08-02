@@ -1,7 +1,7 @@
 The Power of Patience: How Lifelong Learning Fosters Perseverance
 =================================================================
 
-Chapter 5: Navigating Impatience and Managing Frustration
+Navigating Impatience and Managing Frustration
 ---------------------------------------------------------
 
 In this chapter, we delve into the challenges of impatience and frustration that often arise on our lifelong learning journey. We explore effective strategies and techniques for navigating these emotions, fostering patience, and cultivating a mindset of perseverance.
