@@ -1,4 +1,4 @@
-Chapter: Understanding the Importance of Patience and Perseverance in Personal and Professional Life
+Understanding the Importance of Patience and Perseverance in Personal and Professional Life
 ====================================================================================================
 
 Introduction

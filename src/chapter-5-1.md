@@ -1,4 +1,4 @@
-Chapter 3: Navigating Impatience and Managing Frustration
+Navigating Impatience and Managing Frustration
 =========================================================
 
 Introduction

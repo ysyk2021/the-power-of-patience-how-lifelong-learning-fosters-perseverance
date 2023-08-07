@@ -1,4 +1,4 @@
-Chapter: The Benefits of Lifelong Learning for Developing Patience
+The Benefits of Lifelong Learning for Developing Patience
 ==================================================================
 
 Introduction
