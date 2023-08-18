@@ -3,7 +3,6 @@
 - [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Patience and Perseverance in Personal and Professional Life](chapter-1-1.md)
   - [The Benefits of Lifelong Learning for Developing Patience](chapter-1-2.md)
-  - [Purpose and Scope of the Book](chapter-1-3.md)
 - [Chapter 2: Defining the Power of Patience](chapter-2.md)
   - [Identifying the Components of Effective Patience Strategies](chapter-2-1.md)
   - [Recognizing the Connection Between Learning and Perseverance](chapter-2-2.md)

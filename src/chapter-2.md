@@ -3,11 +3,6 @@ Chapter 2: Defining the Power of Patience
 
 In this chapter, we'll define the power of patience and explore its components. We'll also examine the connection between learning and perseverance and create a framework for incorporating patience into our lives.
 
-Defining the Power of Patience
-------------------------------
-
-Patience is the ability to remain calm and composed in the face of adversity. It involves tolerating delay, difficulties, or challenges without becoming overly frustrated or agitated. Practicing patience can lead to increased resilience, emotional regulation, problem-solving skills, empathy, and productivity.
-
 Identifying the Components of Effective Patience Strategies
 -----------------------------------------------------------
 
