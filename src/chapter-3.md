@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building a Patient Mindset
-====================================================
 
 In this chapter, we'll explore strategies for building a patient mindset. By developing self-awareness, creating a plan for consistent practice, and assessing patience needs and goals, you can cultivate the habits that support increased perseverance and success.
 
